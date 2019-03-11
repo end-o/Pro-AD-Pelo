@@ -42,3 +42,5 @@ ie: character progression out of these perspectives allows for productive person
 
 The behavior or emotional sequence started at Transaction is to create new tendencies at located in-stances in between style appointments to serve for further relation
 ie: Trait sequence after transaction is to continue kines perception as subscribed to in content and out of style chair
+
+Kines responses and reactions and reactions in accordance phonetic use in user's environemnt allow for assimilation of personality & character sequence as observed in content
